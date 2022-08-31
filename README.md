@@ -1,0 +1,6 @@
+- 👋 Ola meu nome é @Suck69
+- 👀 Meu email de contato é prestes.victor@escola.pr.gov.br
+- 🌱 Eu estou interessado em aprender a progamar novas liguagens
+- 💞️ Eu estou aprendendo a progamar recentemente a linguagem de JavaScript e Scratch
+- 📫 Qualquer me chama ai
+-
